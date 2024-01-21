@@ -1,0 +1,1 @@
+![Screenshot 2024-01-21 132701](https://github.com/Amisha0971/FOLDED-PROFILE-SHOW-HTML-CSS/assets/136344215/39e5f428-95fb-45a9-b6e3-1067cc18117c)
